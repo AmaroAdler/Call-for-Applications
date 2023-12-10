@@ -1,4 +1,4 @@
-# Call-for-Applications
+# Call-for-Applications AI
 LAUNCHZONE>X AI
 
 Project Collaboration Opportunity
